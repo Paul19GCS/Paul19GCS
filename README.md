@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Paul19GCS
+- 👀 I’m interested in ChatGPT
+- 🌱 I’m currently learning ALJA.
